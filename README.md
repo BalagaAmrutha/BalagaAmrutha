@@ -2,7 +2,7 @@
 - 👀 I’m interested in Developing Technology, Learning about technology, Classical Dance, ..
 - 🌱 I’m currently learning SDE,WD,Embedded systems.
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...@amruthachetan55@gmail.com,a.balaga@iitg.ac.in,8293061625
+- 📫 How to reach me ..a.balaga@iitg.ac.in,8293061625
 - 😄 Pronouns: ...She/her
 - ⚡ Fun fact: ..cafe,parties,food.
 
