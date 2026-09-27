@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @BalagaAmrutha
 - 👀 I’m interested in Developing Technology, Learning about technology, Classical Dance, ..
-- 🌱 I’m currently learning SDE,WD,Embedded systems.
+- 🌱 I’m currently learning SDE,AI/ML.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ..a.balaga@iitg.ac.in,8293061625
 - 😄 Pronouns: ...She/her
