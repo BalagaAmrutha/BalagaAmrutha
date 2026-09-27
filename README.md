@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ..a.balaga@iitg.ac.in,8293061625
 - 😄 Pronouns: ...She/her
-- ⚡ Fun fact: ..cafe,parties,food.
+- ⚡ Fun fact: ..painting,crafting,guitar.
 
 <!---
 BalagaAmrutha/BalagaAmrutha is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
